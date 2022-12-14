@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Mochennn
+- 🌱 I’m currently learning electrical engineering in Sichuan University.
